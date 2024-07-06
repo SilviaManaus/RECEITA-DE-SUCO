@@ -1,2 +1,2 @@
 # RECEITA-DE-SUCO
-Receita de Suco Detox 
+Receita de Suco Detox
